@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @PLDboo
 - 👀 I’m interested in nearly everything
 - 🌱 I’m currently learning nearly everything
-- 💞️ I’m looking to collaborate alone
-- 📫 How to reach me (not suggestion)
-- 😄 Pronouns: Attack hellicopter
+- 💞️ I’m looking to collaborate with anyone
+- 📫 How to reach me (just call me)
+- 😄 Pronouns: Male obviously
 - ⚡ Fun fact: I'am a far-right male
 
 <!---
