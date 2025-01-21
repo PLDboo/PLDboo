@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate with anyone
 - 📫 How to reach me (just call me)
 - 😄 Pronouns: Male obviously
-- ⚡ Fun fact: I'am a far-right male
 
 <!---
 PLDboo/PLDboo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
